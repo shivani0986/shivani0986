@@ -1,0 +1,10 @@
+-  Hi there, I’m @Shivani Upadhyay
+-  I’m interested in coading
+-  I’m currently learning javascript
+-  I’m looking to collaborate on new projects
+-  How to reach me //comment here , SHIVANI30957210 - twitter id
+-  I like to play games make games [FlexiBoldgamerShivani]
+-  Currently studying in 11th std
+-  sometimes being stuck to PC ,I prefer outdoor games too 
+-  I am a COOL PERSON from Uttar Pradesh 
+-  Once ur focused u can achieve anything
