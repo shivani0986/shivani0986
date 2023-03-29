@@ -8,4 +8,4 @@
 -  sometimes being stuck to PC ,I prefer outdoor games too 
 -  I am a COOL PERSON from Uttar Pradesh but at present in Maharashtra
 -  Once ur focused u can achieve anything
-![133542753-d98e5385-fab1-4f1e-a4b1-983208f2154c](https://user-images.githubusercontent.com/76774000/228609667-273747e4-a1f3-4e39-80af-3fdb01ccdcf1.gif)
+![झंडालहराना-vijay-singh-azaad](https://user-images.githubusercontent.com/76774000/228610743-ee073336-562b-4be4-8e6b-3fee4a9861c3.gif)
