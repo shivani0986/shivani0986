@@ -6,5 +6,5 @@
 -  I like to play games make games [FlexiBoldgamerShivani]
 -  Currently studying in 11th std
 -  sometimes being stuck to PC ,I prefer outdoor games too 
--  I am a COOL PERSON from Uttar Pradesh 
+-  I am a COOL PERSON from Uttar Pradesh but at present in Maharashtra
 -  Once ur focused u can achieve anything
