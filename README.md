@@ -7,5 +7,5 @@
 -  Currently studying in 11th std
 -  sometimes being stuck to PC ,I prefer outdoor games too 
 -  I am a COOL PERSON from Uttar Pradesh but at present in Maharashtra
--  Once ur focused u can achieve anything
-![झंडालहराना-vijay-singh-azaad](https://user-images.githubusercontent.com/76774000/228610743-ee073336-562b-4be4-8e6b-3fee4a9861c3.gif)
+-  Once ur focused can achieve anything
+#Indian-Flag
