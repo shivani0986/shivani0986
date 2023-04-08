@@ -1,6 +1,6 @@
 -                                                                ~ YASHIVANI💘💌~
 -  Hi there, I’m @Shivani Upadhyay
--                                                                 ❿&&⓫ so important for me 
+-  ❿&&⓫ so important for me 
 -  I’m interested in coading♡♡♡♡♡
 -  I’m currently learning javascript
 -  I’m looking to collaborate on new projects🐾✌
