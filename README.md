@@ -1,4 +1,4 @@
-                                                                 ~ YASHIVANI~ YA!!!! U CAN DO ANYTHING THAT'S WHY YASHIVANI
+                                          ~ YASHIVANI~ YA!!!! U CAN DO ANYTHING THAT'S WHY YASHIVANI
 -  Hi there, I’m @Shivani Upadhyay
 -  ❿&&⓫ so important for me 
 -  I’m interested in coading♡♡♡♡♡
