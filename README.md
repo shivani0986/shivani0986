@@ -1,6 +1,6 @@
                                           ~ SHIVANI~ YA!!!! U CAN DO ANYTHING 
 -  Hi there, I’m @Shivani Upadhyay
--  ❿&&⓫ so important for me 
+-  w.r.t. dy(I)/dt 
 -  I’m interested in coading♡♡♡♡♡
 -  I’m currently learning javascript
 -  I’m looking to collaborate on new projects🐾✌
